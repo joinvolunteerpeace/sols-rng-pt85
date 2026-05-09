@@ -1,4 +1,4 @@
-
+Experience sol's rng like never before with sol's rng Scripts secret, the #1 Script. Includes auto-farm and anti-ban for unbeatable performance.
 
 
 
